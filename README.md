@@ -1,1 +1,0 @@
-# MMA-assignment1
